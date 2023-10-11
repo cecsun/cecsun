@@ -1,5 +1,4 @@
-![githubprofile](https://github.com/cecsun/cecsun/assets/116072995/eda9d29e-d73f-4343-a28c-a6fc34d7c1b6)
-
+![githubprofile](https://github.com/cecsun/cecsun/assets/116072995/39e972e3-33e3-4cd6-b111-b1fe1c1c58df)
 
 
 
