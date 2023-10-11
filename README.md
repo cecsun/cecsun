@@ -1,6 +1,6 @@
-### Hi, I'm Cecilie 🦋
+![githubprofile](https://github.com/cecsun/cecsun/assets/116072995/eda9d29e-d73f-4343-a28c-a6fc34d7c1b6)
 
-![image](
+
 
 
 
